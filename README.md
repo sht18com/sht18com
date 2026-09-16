@@ -11,7 +11,7 @@
 ## 失联后如何找到我们
 
 - 邮箱：发送任意内容至 seht609@gmail.com 获取最新地址
-- Twitter：https://x.com/seht609
+- Twitter：https://x.com/sht18vvv
 - Telegram 频道：https://t.me/seht001
 - 商务合作：https://t1t1.com/
 
